@@ -4,7 +4,7 @@
 
 What if the difference between life and death was a little less dramatic? 
 
-The act of dying feels painless—in fact, peaceful and numb. More transference than anything. The soft transformation from a physical being to a spirit.  When someone is actually actively dying, it is clear this is their end because they lose physical sensations and begin to see the spiritual plane. See the Gods and Planes file for basic description.
+The act of dying feels painless—in fact, peaceful and numb. More transference than anything. The soft transformation from a physical being to a spirit.  When someone is actually actively dying, it is clear this is their end because they lose physical sensations and begin to see the spiritual plane. See the [Gods and Planes](<Gods and Planes.md) file for basic description.
 
 ## Shepherds
 

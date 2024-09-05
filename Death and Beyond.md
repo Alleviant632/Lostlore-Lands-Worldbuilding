@@ -21,4 +21,4 @@ These rumored marks take different shapes. One notable one
 
 ## Spirits
 
-For spirits, existence is different. They can travel anywhere—the further from places they’ve been, the weaker they are. They cannot be as present and often seem like a wisp at best. To be apparent in the material plane is hard. It takes strength and power, yet many spirits have not trained and are satisfied. Spirits who can be witnessed have trained, have a desire to be present. They can see and interact with things on their side. If only those in the material plane could respond.  
+For spirits, existence is different. They can travel anywhere—the further from places they’ve been, the weaker they are. They cannot be as present and often seem like a wisp at best. To be apparent in the material plane is hard. It takes strength and power, yet many spirits have not trained and are satisfied. Spirits who can be witnessed have trained, have a desire to be present. They can see and interact with things on their side. If only those in the material plane could respond. Few can see spirits. Certain rituals can summon them if the spirit wishes to appear. 

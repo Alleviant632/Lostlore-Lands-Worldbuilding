@@ -10,7 +10,7 @@ The act of dying feels painless—in fact, peaceful and numb. More transference 
 
 Shepherds walk the thin path between the material and spiritual planes, guiding souls to their place of rest. A few times over the years, rumors spread of a Shepherds Favor. A gift granted to a person who meets a Shepherd upon death and makes a deal. A sailor who requested immortality. A mage who cannot die. A Toran who can call upon the aid of spirits.
 
-They wear long royal blue robes with embroidered patterns sewn with black, gold, white, purple, green, and orange thread. On the center of the chest a moon, shifting from certain angles into a bright sun. The sleeves are adorned with purple triskeles. The hood is black, shaped in such a way to resemble a raven's head. Many small flowers decorate the rest of the front, sleeves, and sides. 
+Shepherds wear long royal blue robes with embroidered patterns sewn with black, gold, white, purple, green, and orange thread. On the center of the chest a moon, shifting from certain angles into a bright sun. The sleeves are adorned with purple triskeles. The hood is black, shaped in such a way to resemble a raven's head. Many small flowers decorate the rest of the front, sleeves, and sides. 
 
 They meet recently dead spirits who appear through the waterfall in a stone cavern. The Shepherd chooses the face of someone the spirit loved most, they appear as someone who has died. Few have seen a Shepherds true face. 
 

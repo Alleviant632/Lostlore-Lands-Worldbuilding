@@ -13,7 +13,7 @@ All that remain of a once-great continent. Across a vast ocean small islands sep
 
 Their eyes, once saturated with powerful shades of purple, now bear colorless grey tones...with hints of purple. This is because their connection to their land is fading.
 
-Erutan loved this continent when it existed and took great care to encourage the growth of this land. Their pride and joy was in their creation of Lorelea
+Erutan loved this continent when it existed and took great care to encourage the growth of this land. Their pride and joy was in their creation of Lorelea, a plant I have not developed at all. Lorelea is closely connected to Erutan, and Erutan loves witnessing the creativity of Puryvians. These two factors allowed Puryvians to use magic without the possibility of failure like the Copesians. And, Erutan likes to change things up sometimes. 
 
 # Copesians
 

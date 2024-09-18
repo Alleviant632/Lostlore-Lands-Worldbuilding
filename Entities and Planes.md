@@ -2,6 +2,8 @@
 
 ## Entities
 
+(they are more essence than entity if that makes sense) 
+
 Two entities balance the world, existing in perfect harmony. Erutan (eh-rew-taun) created the physical world, the earth, seas, forests, mountains, creatures, peoples. They fell in love with the chaotic elements of nature, while comforted by the subtle simplicities of their creation. 
 
 Rethe (reh-theh) saw this creation and mourned the passage of time, frustrated how things just ended. So they created the spiritual plane as a source of remembrance and continuation of life after its end. The spiritual plane exists in the same exact space as the material plane, but is only visible and habitable by those who have passed away and those who have been granted varying levels of access. Where you might see a mountain in the material plane, you might see a taller mountain with a different shape in the spiritual plane--a mark of the past. Where you see a stream, you might see a river. Where you see a valley, you might see a city lost to time. 

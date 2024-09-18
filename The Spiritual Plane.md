@@ -2,7 +2,7 @@
 
 ## Death
 
-The act of dying feels painless—in fact, peaceful and numb. More transference than anything. The soft transformation from a physical being to a spirit.  When someone is actually actively dying, it is clear this is their end because they lose physical sensations and begin to see the spiritual plane. See the [Gods and Planes](<Gods and Planes.md>) file for basic description. The eyes of the dying become pale blue and some claim they can see things that are not there during this time. The things are there, just in the spiritual plane. 
+The act of dying feels painless—in fact, peaceful and numb. More transference than anything. The soft transformation from a physical being to a spirit.  When someone is actually actively dying, it is clear this is their end because they lose physical sensations and begin to see the spiritual plane. See the [Entities and Planes](<Entities and Planes.md>) file for basic description. The eyes of the dying become pale blue and some claim they can see things that are not there during this time. The things are there, just in the spiritual plane. 
 
 
 ## Shepherds of Souls
@@ -15,9 +15,11 @@ They meet recently dead spirits who appear through the waterfall in a stone cave
 
 ## Mark of a Shepherd's Favor
 
-These rumored marks take different shapes. One notable one 
+These rumored marks take different shapes. One notable one covers the forearm. Dark vines cover the skin, broken by designs of several flowers associated with death (I cannot remember which ones right now but I do have some written down).
 
 
 ## Spirits
 
 For spirits, existence is different. They can travel anywhere—the further from places they’ve been, the weaker they are. They cannot be as present and often seem like a wisp at best. To be apparent in the material plane is hard. It takes strength and power, yet many spirits have not trained and are satisfied. Spirits who can be witnessed have trained, have a desire to be present. They can see and interact with things on their side. If only those in the material plane could respond. Few can see spirits. Certain rituals can summon them if the spirit wishes to appear. 
+
+They use waterfalls around the world to travel long distances and are the only ones who can see remnants of the past--like the lost continent. They would be able to advise the living if the living could see and interact with them. 

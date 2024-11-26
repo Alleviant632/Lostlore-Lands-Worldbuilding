@@ -1,19 +1,19 @@
 # Torans
 
-Not their original name...but that knowledge has been lost to time (fortunately for them) and I have not thought that far ahead. 
+Not their original name...but that knowledge has been lost to time. They are Tasmarrens who fled after Vanishment began.
 
-They live on the Island of a Thousand Mountains in small settlements on the sides of mountains and in valleys--anywhere they can. They were Puryvians and used to live on that continent but do not remember. They do not remember that they fled, terrified of what some were planning and too cowardly to stand up against them. 
+They live on Foorhill Island in small settlements on the sides of mountains and in valleys--anywhere they can. They were Puryvians and used to live on that continent. They do not remember that they fled, terrified of what some were planning and too cowardly to stand up against them. 
 
-The first "Toran" settlers on the Island of a Thousand Mountains and many stayed near the three springs and the Waterfall. Rethe liked the community these people cherished and soon grew to love them. As soon as some Torans began to die, their spirits became visible to their living relatives. The spirits helped their families grow accustomed to this new land. Torans evolved to have these pale marks on their skin and their eyes became blue or pale blue. They used to see and speak to spirits, but as time passed they did not need their help anymore. Torans began to move away from Spirit Springs and eventually could not see these spirits anymore (the Waterfall is a source of great power and granted more powers). Most of their magic depends on proximity to the Waterfall (and other Waterfalls on the material plane, most of which they have never visited). 
+Many of these settlers stayed near the three springs and the Waterfall. They knew of these veils between the planes, having lived among them on the Great Tors of Tasmarr. Ilira's great-grandfather settled around this unique spring along with those who helped him Vanish Puryvia. Here they began to rewrite Tasmarr history, writing themselves as heroes and keeping the truth secret from those who did not need to know. 
 
 
 # Puryvians
 
-All that remain of a once-great continent. Across a vast ocean small islands separate the waters, the only remaining land from a sunken continent. In ages past, forgotten by time and buried records, the people here bear marks on their skin and purple eyes. Their skin soaked with a wealth of magic, Puryvians sketch designs on their skin as enchantments from ink derived from native plants now extinct. Upon use, the sketches fade. New designs must be drawn to cast a spell again. Now disconnected from their home, Puryvians sail the open seas in vast ships and float aboard houseboats—sometimes large enough for small towns. Some live on small islands near where the continent was. 
+All that remain of a once-great continent. Across a vast ocean small islands separate the waters, the only remaining lands from a lost continent. In ages past, forgotten by time and buried records, the people here bear Marks on their skin and purple eyes. Their skin soaked with a wealth of magic, Puryvians sketch designs on their skin as enchantments from Leiink derived from native Kaleilea plants. Upon use, the sketches fade. New designs must be drawn to cast a spell again. Now disconnected from their home, Puryvians sail the open seas in vast ships and float aboard houseboats—sometimes large enough for small towns. Some live on small islands near where the continent was. 
 
-Their eyes, once saturated with powerful shades of purple, now bear colorless grey tones...with hints of purple. This is because their connection to their land is fading.
+Their eyes, once saturated with powerful shades of purple, now bear colorless grey tones...with hints of purple. Their connection to their land is fading.
 
-Erutan loved this continent when it existed and took great care to encourage the growth of this land. Their pride and joy was in their creation of Lorelea, a plant I have not developed at all. Lorelea is closely connected to Erutan, and Erutan loves witnessing the creativity of Puryvians. These two factors allowed Puryvians to use magic without the possibility of failure like the Copesians. And, Erutan likes to change things up sometimes. 
+Erutan loved this continent when it existed and took great care to encourage the growth of this land. Their pride and joy was in their creation of Kaleilea. Kaleilea is closely connected to Erutan, and Erutan loves witnessing the creativity of Puryvians.
 
 # Copesians
 

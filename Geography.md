@@ -35,5 +35,3 @@ I am rethinking a lot of the Crimson Compass right now and have not finalized ho
 ### The Merry Ferryman
 
 The boat itself is beautifully painted and well-kept. Not the fastest ship but a great one. Big and strong, she can hold a great many sailors. Music and laughter can often be heard upon her decks, subtle floral scents along with weed, food, drink, incense and more drift upon the wind. A hearty crew closely bonds as they go about their chores. Many members of the crew wear bright green robes with orange and yellow trim.
-
-Their captain? The sister of the Archmage. Our favorite crew member? Thessaly Wayfinder.

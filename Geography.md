@@ -1,6 +1,5 @@
 # Geography
 
-Map is attached. 
 
 ![The Lostlore Lands (1)](https://github.com/user-attachments/assets/a19b4444-2802-4b2a-a42c-9b7384d5ac0d)
 
